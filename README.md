@@ -1,0 +1,1 @@
+# CICLO_3_MINTIC
